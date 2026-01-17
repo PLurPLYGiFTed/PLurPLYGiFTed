@@ -1,3 +1,3 @@
-![](https://i.postimg.cc/YqNZ3cZ7/Untitled6-20240829170657.png)
-    I  know, another  new  git . .
-    im  sorry
+![](https://i.postimg.cc/j2w9tyKr/IMG-8955.gif) 
+
+I  know, another  new  git .  im  sorry
